@@ -1,1 +1,0 @@
-# computerassignmnet_naimi
